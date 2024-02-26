@@ -1,0 +1,1 @@
+Greetings...xxAedomusxx here and I'm starting out in the coding world, I'm currently taking online courses in Udemy and will be furthering my education in Front End Web Development. I'm excited in this journey for myself, and hope to share with you my progrees and projects along the way. Thanks!
